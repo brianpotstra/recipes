@@ -1,4 +1,4 @@
-# Dan-Dan Noodles
+# Dan Dan Noodles
 Serves 2
 
 ## Ingredients
