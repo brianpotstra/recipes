@@ -1,5 +1,5 @@
 # Sausage Orecchiette
-Serves 2
+Serves 4
 
 ## Ingredients
 * 4 Italian sausages
